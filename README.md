@@ -1,2 +1,0 @@
-# vickyromadon.github.io
-Me
